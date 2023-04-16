@@ -1,3 +1,7 @@
 # GOOD LIFE
 
 god protect us all
+
+oluaseun
+
+shomo
